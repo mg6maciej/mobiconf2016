@@ -20,6 +20,8 @@ It's a mini ping pong table.
 
 ![Prize](http://i.ebayimg.com/images/g/AtMAAOxycgVTgyef/s-l400.jpg)
 
+Guess what, it doesn't take much space and it'll even fit in your living room!
+
 ## What's the deadline?
 
 We're waiting for your submission till Friday, Oct 6, noon.
