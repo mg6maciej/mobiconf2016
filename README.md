@@ -28,4 +28,4 @@ We're waiting for your submission till Friday, Oct 6, noon.
 
 It's needed because we collect your name and email address. No worries, we'll not share it with anyone and we won't use this data to spam you.
 
-By taking part in the competition you agree that you allow your personal data stated in the submissions to be processed for the purpose of competition, in accordance with the Personal Data Protection Act dated 29/08/1997 (Dz.Ust.No.133, item 883)\
+By taking part in the competition you agree that you allow your personal data stated in the submissions to be processed for the purpose of competition, in accordance with the Personal Data Protection Act dated 29/08/1997 (Dz.Ust.No.133, item 883)
