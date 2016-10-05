@@ -18,4 +18,4 @@ Yes.
 
 It's a mini ping pong table.
 
-![Prize](http://allegro.pl/klarfit-mini-stol-do-tenisa-stolowego-ping-ponga-i6064018115.html)
+![Prize](http://i.ebayimg.com/images/g/AtMAAOxycgVTgyef/s-l400.jpg)
