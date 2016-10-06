@@ -24,7 +24,7 @@ Guess what, it doesn't take much space (75x153) and it'll even fit in your livin
 
 ## What's the deadline?
 
-We're waiting for your submission till Friday, Oct 6, 2:20 PM (coffee break).
+We're waiting for your submission till Friday, Oct 7, 2:20 PM (coffee break).
 
 ## Legal stuff
 
